@@ -1,8 +1,5 @@
 Developer: Taeung Song
 
-mod, mod, mod,,,
+6e66e6e6e6e
 
-asdf asdf asdf
-asdf asdf asdf
-
-5t5t5t5t
+66666amand
